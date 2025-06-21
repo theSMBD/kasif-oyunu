@@ -163,5 +163,10 @@ For support and questions:
 - [ ] Educational institution integration
 
 ---
+Proje Yönetimi Trello panosunda projede gerçekleştirilen her aşama takip edilebilir. Panoya göz atmak için:
+
+https://trello.com/b/fKsUDVTO/dunya-kasifi
+
+Bağlantılar LinkedIn: https://www.linkedin.com/in/thesmbd/
 
 **Made with ❤️ for curious young minds around the world** 
