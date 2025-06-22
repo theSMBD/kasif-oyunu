@@ -169,5 +169,8 @@ https://trello.com/b/fKsUDVTO/dunya-kasifi
 
 Bağlantılar LinkedIn: https://www.linkedin.com/in/thesmbd/
 
+Video linki: https://youtu.be/FiQtGzXtdc8?si=FEqH2xBjV3bDJ69n
+
 **Made with ❤️ for curious young minds around the world** 
+
 Seba Melikesi Belkıs Demir
